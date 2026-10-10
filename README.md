@@ -1,2 +1,2 @@
 # cutzbyibraham
-Haircuts by Ibraham in Sultan.
+Haircuts by Ibrahim in Sultan.
